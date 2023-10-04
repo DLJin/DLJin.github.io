@@ -17,4 +17,4 @@ Lastly, design control is the way that the designers of a game chose to present 
 
 RPGs are a genre of games very near and dear to my heart. The potential for player reactivity, mechanical complexity, narrative depth, and the feeling of overcoming great challenges in your own personal way highlight the heights of what games as a medium can achieve. I’m obviously biased, but I hope this very brief analysis of such a wide and varied genre imparts a tiny bit of my love for it!
 
-Adam Millard’s video: https://youtu.be/1kNi3cLB0sI?si=5fcDhsjCzTXneLYl
+Adam Millard’s video: [RPGs Were Never About Roleplaying](https://youtu.be/1kNi3cLB0sI?si=5fcDhsjCzTXneLYl)
